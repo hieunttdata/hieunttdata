@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Hieu Nguyen
+- 👀 I’m Data guy.
